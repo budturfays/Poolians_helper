@@ -1,6 +1,6 @@
 Discord: @owner6368\
-Steam, 8/2026\
-<img width="460" height="943" alt="Image" src="https://github.com/user-attachments/assets/cb21fc24-a777-4793-9f01-e1652ed63c06" />
+both Steam and non, 9/2026\
+![alt text](https://github.com/budturfays/Poolians_helper/blob/main/Untitled.png?raw=true)
 
 
 Adding the overlay for Jesso4906's Poolians nothing more. (outdated)
